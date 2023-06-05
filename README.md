@@ -1,0 +1,1 @@
+# Strukdat_B_Modul6
